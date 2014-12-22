@@ -36,133 +36,145 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A collection of some modern epistles of Monsieur de Balzac. Carefully translated out of French. Bein
+Balzacum hoc tandem dignemur honore.Doctarum proemia frontium.A NEW COLLECTION OF EPISTLES OF MONS: 
+1. To the READER.
+
+1. An advertiſement of Monſ. the KING.
+
+1. IOHANNI LUDOVICO BALZACO. V.C.S.P.
+〈1… pages missing〉and profeſſe; Among theſe ſevere ſpeculations, you ſhall ſee ſome flaſhes of wit b
+1. TO MY LORD the Chancellor.
+
 #####Body#####
 
-1. LETTER. I. To Monſieur CONRART.
+1. A COLLECTION OF SOME MODERN EPISTLES OF MONSIEUR DE BALZAC.
 
-1. LET. II To Monſieur du MOULIN.
+    _ LETTER. I. To Monſieur CONRART.
 
-1. LET. III. To Monſieur L' HUILLIER Counſellour to the King, and Ordinary Mr of his Accounts.
+    _ LET. II To Monſieur du MOULIN.
 
-1. LET. IV. To Monſieur the Abbat of BOIS-ROBERT.
+    _ LET. III. To Monſieur L' HUILLIER Counſellour to the King, and Ordinary Mr of his Accounts.
 
-1. LET. V. To my Lord, the Earle of EXCESTER.
+    _ LET. IV. To Monſieur the Abbat of BOIS-ROBERT.
 
-1. LET. VI. To my Lord the Duke de la VALLETTE, Governour & Lieutenant Generall for the King in GUYEN.
+    _ LET. V. To my Lord, the Earle of EXCESTER.
 
-1. LET. VII. To Monſieur Drouet, Doctor of Phyſick.
+    _ LET. VI. To my Lord the Duke de la VALLETTE, Governour & Lieutenant Generall for the King in GUYEN.
 
-1. LET. VIII. To Monſieur DE-BONAIR.
+    _ LET. VII. To Monſieur Drouet, Doctor of Phyſick.
 
-1. LET. IX. To Monſieur HUGGENS Counſellour and Secretary of the Commands of my Lord the Prince of Orenge.
+    _ LET. VIII. To Monſieur DE-BONAIR.
 
-1. LET. X. To Monſieur de RACAN.
+    _ LET. IX. To Monſieur HUGGENS Counſellour and Secretary of the Commands of my Lord the Prince of Orenge.
 
-1. LET. XI. To Monſieur de St CHARTRES.
+    _ LET. X. To Monſieur de RACAN.
 
-1. LET. XII. To Monſieur BAUDOIN.
+    _ LET. XI. To Monſieur de St CHARTRES.
 
-1. LET. XIII. To Monſieur de COIGNET Gentleman in Ordinary to the moſt Illuſtrious Queene of great Britaine.
+    _ LET. XII. To Monſieur BAUDOIN.
 
-1. LET. XIV. To Madam DESLOGES.
+    _ LET. XIII. To Monſieur de COIGNET Gentleman in Ordinary to the moſt Illuſtrious Queene of great Britaine.
 
-1. LET. XV. To my Lord Keeper of the Seales Seguier, ſince Chancellor of France.
+    _ LET. XIV. To Madam DESLOGES.
 
-1. LET. XVI. To Monſieur de Morins, Counſellour of the King in the Court of the Edict, at Agen.
+    _ LET. XV. To my Lord Keeper of the Seales Seguier, ſince Chancellor of France.
 
-1. LET. XVII. To Monſieur de-Vaugelas Gentleman in Ordinary to Monſieur the Kings onely Brother.
+    _ LET. XVI. To Monſieur de Morins, Counſellour of the King in the Court of the Edict, at Agen.
 
-1. LET. XVIII. To Monſieur de la Motte-Aigron.
+    _ LET. XVII. To Monſieur de-Vaugelas Gentleman in Ordinary to Monſieur the Kings onely Brother.
 
-1. LET. XIX. To Monſieur de BORSTELL.
+    _ LET. XVIII. To Monſieur de la Motte-Aigron.
 
-1. LET. XX. To Monſieur — the Chiefe Advocate.
+    _ LET. XIX. To Monſieur de BORSTELL.
 
-1. LET. XXI. To Monſieur De MAURY.
+    _ LET. XX. To Monſieur — the Chiefe Advocate.
 
-1. LET. XXII. To Monſieur De MONDORY.
+    _ LET. XXI. To Monſieur De MAURY.
 
-1. LET. XXIII. To Monſieur LE. GVAY.
+    _ LET. XXII. To Monſieur De MONDORY.
 
-1. LET. XXIV. To Monſieur De SILHON, Muſqueteer of the Kings Company.
+    _ LET. XXIII. To Monſieur LE. GVAY.
 
-1. LET. XXV. To Monſieur De la Foſſe.
+    _ LET. XXIV. To Monſieur De SILHON, Muſqueteer of the Kings Company.
 
-1. LET. XXVI. To Monſieur D' Eſpeſſes Counſellour of the King in his Counſaile of State.
+    _ LET. XXV. To Monſieur De la Foſſe.
 
-1. LET. XXVII. To the ſame.
+    _ LET. XXVI. To Monſieur D' Eſpeſſes Counſellour of the King in his Counſaile of State.
 
-1. LET. XXVIII. To Monſieur de Couurelles.
+    _ LET. XXVII. To the ſame.
 
-1. LET. XXIX. To —
+    _ LET. XXVIII. To Monſieur de Couurelles.
 
-1. LET. XXX. To my Lord the Biſhop of ANGOULESME, chiefe Almoner to the Illustrious Queene of great Brittaine.
+    _ LET. XXIX. To —
 
-1. LET. XXXI. To Monſieur De —
+    _ LET. XXX. To my Lord the Biſhop of ANGOULESME, chiefe Almoner to the Illustrious Queene of great Brittaine.
 
-1. LET. XXXII. To Monſieur de Serizay.
+    _ LET. XXXI. To Monſieur De —
 
-1. LET. XXXIII. To Monſieur Habert, Abbat of Cerizy.
+    _ LET. XXXII. To Monſieur de Serizay.
 
-1. LET. XXXIV. To Monſieur De GAILLARD.
+    _ LET. XXXIII. To Monſieur Habert, Abbat of Cerizy.
 
-1. LET. XXXV. To the ſame —
+    _ LET. XXXIV. To Monſieur De GAILLARD.
 
-1. LET. XXXVI. To Madam DESLOGES.
+    _ LET. XXXV. To the ſame —
 
-1. LET. XXXVII. To Monſieur de —
+    _ LET. XXXVI. To Madam DESLOGES.
 
-1. LET. XXXVIII. To Monſieur Girard, Officiall of the Church of Angouleſme.
+    _ LET. XXXVII. To Monſieur de —
 
-1. LET. XXXIX. To the ſame: —
+    _ LET. XXXVIII. To Monſieur Girard, Officiall of the Church of Angouleſme.
 
-1. LET. XL. To the ſame —
+    _ LET. XXXIX. To the ſame: —
 
-1. LET. XLI. To the ſame —
+    _ LET. XL. To the ſame —
 
-1. LET. XLII. To Madamoiſell de CAMPAGNOLE.
+    _ LET. XLI. To the ſame —
 
-1. LET. XLIII. To Monſieur the Abbat of Bois-Robert.
+    _ LET. XLII. To Madamoiſell de CAMPAGNOLE.
 
-1. LET. XLIV. To the ſame —
+    _ LET. XLIII. To Monſieur the Abbat of Bois-Robert.
 
-1. LET. XLV. To the ſame.
+    _ LET. XLIV. To the ſame —
 
-1. LET. XLVI. To Monſieur de Savignac.
+    _ LET. XLV. To the ſame.
 
-1. LET. XLVII. To Monſieur Chapelain.
+    _ LET. XLVI. To Monſieur de Savignac.
 
-1. LET. XLVIII. To the ſame —
+    _ LET. XLVII. To Monſieur Chapelain.
 
-1. LET. XLIX. To the ſame—
+    _ LET. XLVIII. To the ſame —
 
-1. LET. L. To the ſame —
+    _ LET. XLIX. To the ſame—
 
-1. LET. LI. To the ſame—
+    _ LET. L. To the ſame —
 
-1. LET. LII. To the ſame —
+    _ LET. LI. To the ſame—
 
-1. LET. LIII. To the ſame.
+    _ LET. LII. To the ſame —
 
-1. LET. LIV. To the ſame —
+    _ LET. LIII. To the ſame.
 
-1. LET. LV. To the ſame—
+    _ LET. LIV. To the ſame —
 
-1. LET. LVI. To the ſame—
+    _ LET. LV. To the ſame—
 
-1. LET. LVII. To Monſieur de Sithon.
+    _ LET. LVI. To the ſame—
 
-1. LET. LVIII. To Monſieur GERARD Secretary to my Lord the Duke of Eſpernon.
+    _ LET. LVII. To Monſieur de Sithon.
 
-1. LET. LIX. To the ſame—
+    _ LET. LVIII. To Monſieur GERARD Secretary to my Lord the Duke of Eſpernon.
 
-1. LET. LX. To Monſieur De la Mothe Le Vayer.
+    _ LET. LIX. To the ſame—
 
-1. LET. LXI. To Monſieur de —
+    _ LET. LX. To Monſieur De la Mothe Le Vayer.
+
+    _ LET. LXI. To Monſieur de —
 
 #####Back#####
-A collection of some modern epistles of Monsieur de Balzac. Carefully translated out of French. Bein
+
+1. A TABLE OF THE LETters (as they lye in order) which are contained in this Volume.
+
 **Types of content**
 
   * There are 24 **verse** lines!
